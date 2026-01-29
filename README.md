@@ -1,6 +1,7 @@
 ## hellowello!!!!
 
 >you can call me prec, bird or socks even though nobody is reading this, bruh 🥀
+
 >im Turkish 🇹🇷
 
 
