@@ -1,7 +1,7 @@
 ## hellowello!!!!
 
 >you can call me prec, bird or socks even though nobody is reading this, bruh 🥀
-
+>im Turkish 🇹🇷
 
 
 ![](https://github.com/mandysleftsock077/mandysleftsock077/blob/main/cat-gif-loop-ice_grande.gif)
