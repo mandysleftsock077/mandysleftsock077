@@ -41,8 +41,6 @@ dandys world
 
 weird people
 
-f#####l word the food one (it sounds weird) 
-
 
 
 
@@ -65,7 +63,7 @@ homophobes and transphobes
 
 sexist and racist people 
 
-people below the age of 10 
+if you arent mature in behavior 
 
 people above the age of 19 
 
